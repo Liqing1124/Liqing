@@ -1,4 +1,4 @@
-## My name is Liqing
+## My nickname is Liqing
 
 
 - 🔭 Vibe coding 😀🙂
